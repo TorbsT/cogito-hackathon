@@ -2,7 +2,10 @@
 hackerman
 
 
-Veldig fine greier
+Veldig fine grei
 
+rodger
+
+sett inn
 
 tek
