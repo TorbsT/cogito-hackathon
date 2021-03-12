@@ -9,3 +9,4 @@ rodger
 sett inn
 
 tek
+kkkkk
